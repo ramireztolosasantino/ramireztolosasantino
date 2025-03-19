@@ -1,6 +1,6 @@
 # Ramirez Tolosa Santino 📚 🇦🇷
 
-  High school student with specialization in avionics basic use of high level languages
+  Estudiante Avionica 7° Año.
 
   ##
   Contact us:
